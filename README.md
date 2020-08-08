@@ -1,6 +1,6 @@
 # ART 311: STUDIO SEMINAR ON CONTEMPORARY ART THEORY AND PRACTICE
 
-Monday 3:30–6:30pm, Fields 207
+Monday 3:30–6:30pm [Zoom](https://us02web.zoom.us/j/7372690628)
 [https://github.com/brianhouse/ART311](https://github.com/brianhouse/ART311)  
 
 Prof. Brian House (he/him), [brianhouse@lclark.edu](mailto:brianhouse@lclark.edu)  
@@ -85,21 +85,24 @@ The Fields Center for Visual Arts stands on the ancestral homelands of the Multn
 ### Week 3 (9/21) -- No class
 - John Berger, ​"Ways of Seeing​ #1: Art in the Age of Mechanical Reproduction" (1972)
 
-### Week 4 (9/28)   [Gianine Tabja (Perú) 9/21, 9/28, 10/5]
+### Week 4 (9/28)
 - Tania Bruguera, "Political Art Statement" (2010) [3]
 - Alan Kaprow, "Legacy of Jackson Pollock" (1958) [8]
+**5pm Talk: [Gianine Tabja](http://www.gianinetabja.com/portfolio.html) (Perú)**
 
-### Week 5 (10/5)   [Sameer Farooq (Canada/Pakistan) 10/5]
+### Week 5 (10/5)
 - Michael Fried, "Art and Objecthood" (1967) [10]
 - Miwon Kwon, "One Place After Another" (1997) [25]
+**5pm Talk: [Sameer Farooq](http://www.sameerfarooq.com)**
 
 ### Week 6 (10/12)
 - Cornell West, "Black Culture and Postmodernism" (198X) [10]
 - Ariella Azoulay, "The Revolution is the Language" (2011) [3+]
 
-### Week 7 (10/19)  [Francesca Capone? 9/14, 9/28, 10/12, 10/19 or later]
+### Week 7 (10/19)
 - Helen Molesworth, “House Work and Art Work” (2000) [26]
 - Anni Albers, "Material as Metaphor" (1982) [1]
+**5pm Talk: [Francesca Capone](https://www.francescacapone.com)**
 
 ### Week 8 (10/26)  [Elisa Giardina-Papa (Italy)]
 - Hito Steryl, "In Defense of the Poor Image" (2009) [9]
@@ -113,9 +116,10 @@ The Fields Center for Visual Arts stands on the ancestral homelands of the Multn
 VOTE
 ---
 
-### Week 10 (11/9)  [Anina Major]
+### Week 10 (11/9)
 - John Roberts, "Art After Deskilling" *check Jess papers*
 - MTL Collective, "Land of the Lost" [9]
+**5pm Talk: [Anina Major](http://www.aninamajor.com)**
 
 ### Week 11 (11/16) [Ellie Irons?]  *write once I hear from the others*
 - Heather Davis & Etienne Turpin, "Art & Death: Lives Between the Fifth Assessment & the Sixth Extinction" (2015) [19]
