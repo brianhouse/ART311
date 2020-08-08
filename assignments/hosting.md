@@ -1,0 +1,8 @@
+# Hosting visiting artists
+
+A pivotal part of the Studio Art Seminar is the visiting artist lecture series. Over the course of the semester we have a range of artists coming to talk to us about their work. They will be traveling (that is, Zooming) to us from a variety of places across the world. As you have probably figured out by now, talking about your work is not easy. Our visiting artists will prepare seriously for this, and so will we. Each student in the class will have one assignment for one of the artists in the lecture series. The two possible assignments are as follows:
+
+**Introduction and closing**:​ Every visiting artist will need to be introduced before they speak. An introduction will include giving a context for our class and the series, and then introducing the artist: giving us a brief bio, a list or their accolades, projects, and exhibitions of note, and offering a brief synopsis w/ reflection on the artist’s work (i.e. why we’re excited to have them talk to us). In addition, at the end of the lecture we will need to thank everyone for attending and also thank the artist for their talk.
+
+**Thank You Card**: ​Every visiting artist will need to have a thank you card mailed to them after the lecture happens. This will entail making a card that visually reflects something from the talk with a thoughtfully written message on the inside that includes some reflection on what we learned and what it made you think about, as well as gathering the signatures of everyone in the class.
+You need to present me with a draft of your intro, gift idea, or thank you text no less than two days prior to the artist’s lecture (or in the case of thank you cards, two days prior to the following class).
