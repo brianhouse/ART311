@@ -67,7 +67,7 @@ If you have a disability that may impact your academic performance, you may requ
 Please refer to the policy on [Academic Integrity](https://docs.lclark.edu/undergraduate/policiesprocedures/academicintegrity/) available on the College’s 'Policies and Procedures' webpage. Submitting work not generated for this course constitutes academic dishonesty. Copying a work or representing something already made must be done so with clear acknowledgement and deliberate consideration. Plagiarism will not be tolerated and will be taken very seriously. If you have any questions or are unsure, just ask.
 
 ### Land Acknowledgement
-The Fields Center for Visual Arts stands on the ancestral homelands of the Multnomah, Kathlamet, Clackamas, Tumwater, Watalala bands of the Chinook, Tualatin Kalapuya, and other indigenous nations of the Columbia River. It is important to acknowledge the original inhabitants of this place and recognize that we are here because of the sacrifices forced upon them. As artists, we must be aware of and resist the many ways violence is perpetuated toward marginalized people.
+The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Clackamas, Tumwater, Watalala bands of the Chinook, the Tualatin Kalapuya, and other indigenous nations of the Columbia River, and we are here because of the sacrifices forced upon them. Furthermore, we are at an institution named after white colonizers in a city with a racist history. As artists, we must be aware of and resist the many ways violence is perpetuated toward marginalized people.
 ##
 
 ## Readings
@@ -78,60 +78,65 @@ The Fields Center for Visual Arts stands on the ancestral homelands of the Multn
 - Introductions *prep: have an image or two that represents your work*
 
 ### Week 2 (9/14)
-- Irit Rogoff, "What is a Theorist" (2004) [13]
-- bell hooks, "Art on My Mind" (1995) [9]
+- Irit Rogoff, "What is a Theorist" (2004)
+- bell hooks, "Art on My Mind" (1995)  
 **Introductory assignment due: Mind-mapping your location**
 
 ### Week 3 (9/21) -- No class
 - John Berger, ​"Ways of Seeing​ #1: Art in the Age of Mechanical Reproduction" (1972)
 
 ### Week 4 (9/28)
-- Tania Bruguera, "Political Art Statement" (2010) [3]
-- Alan Kaprow, "Legacy of Jackson Pollock" (1958) [8]
+- Tania Bruguera, "Political Art Statement" (2010)
+- Alan Kaprow, "Legacy of Jackson Pollock" (1958)  
 **5pm Talk: [Gianine Tabja](http://www.gianinetabja.com/portfolio.html) (Perú)**
 
 ### Week 5 (10/5)
-- Michael Fried, "Art and Objecthood" (1967) [10]
-- Miwon Kwon, "One Place After Another" (1997) [25]
+- Michael Fried, "Art and Objecthood" (1967)
+- Miwon Kwon, "One Place After Another" (1997)  
 **5pm Talk: [Sameer Farooq](http://www.sameerfarooq.com)**
 
 ### Week 6 (10/12)
-- Cornell West, "Black Culture and Postmodernism" (198X) [10]
-- Ariella Azoulay, "The Revolution is the Language" (2011) [3+]
+- Cornell West, "Black Culture and Postmodernism" (198X)
+- Ariella Azoulay, "The Revolution is the Language" (2011)
 
 ### Week 7 (10/19)
-- Helen Molesworth, “House Work and Art Work” (2000) [26]
-- Anni Albers, "Material as Metaphor" (1982) [1]
+- Helen Molesworth, “House Work and Art Work” (2000)
+- Anni Albers, "Material as Metaphor" (1982)  
 **5pm Talk: [Francesca Capone](https://www.francescacapone.com)**
 
-### Week 8 (10/26)  [Elisa Giardina-Papa (Italy)]
-- Hito Steryl, "In Defense of the Poor Image" (2009) [9]
-- Florian Cramer, "What is Post-Digital?" (2015) [12]
+### Week 8 (10/26)
+- Hito Steryl, "In Defense of the Poor Image" (2009)
+- Florian Cramer, "What is Post-Digital?" (2015)  
+**time TBD** [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)
 
 ### Week 9 (11/2)
-- Coco Fusco, "The Bodies That Were Not Ours" (2002) [12]
-- Vito Acconci, "Public Space in a Private Time" (1990) [15]
+- Coco Fusco, "The Bodies That Were Not Ours" (2002)
+- Vito Acconci, "Public Space in a Private Time" (1990)
 
 ---
 VOTE
 ---
 
 ### Week 10 (11/9)
-- John Roberts, "Art After Deskilling" *check Jess papers*
-- MTL Collective, "Land of the Lost" [9]
+- John Roberts, "Art After Deskilling"
+- MTL Collective, "Land of the Lost"  
 **5pm Talk: [Anina Major](http://www.aninamajor.com)**
 
-### Week 11 (11/16) [Ellie Irons?]  *write once I hear from the others*
-- Heather Davis & Etienne Turpin, "Art & Death: Lives Between the Fifth Assessment & the Sixth Extinction" (2015) [19]
-- **Prospectus draft due**
+### Week 11 (11/16)
+- Heather Davis & Etienne Turpin, "Art & Death: Lives Between the Fifth Assessment & the Sixth Extinction" (2015)  
+- **Prospectus draft due**  
+**5pm Talk: [Ellie Irons](http://ellieirons.com/)**
 
 ### Thanksgiving Break
-- Susan Sontag, “Regarding the Pain of Others” (2003) [100]
+- Susan Sontag, “Regarding the Pain of Others” (2003)
 
 
-### Week 12 (11/30) [Nandita Kumar? (India)]
-- Benjamin Bratton, "Some Trace Effects of the Post-Anthropocene" (2013)
-*one more, POC or Barad*
+### Week 12 (11/30)
+- Benjamin Bratton, "Some Trace Effects of the Post-Anthropocene"  
+**6:30pm Talk [Nandita Kumar](https://nanditakumar.com)**
+
+
+
 
 
 ### Week 13 (12/7)

@@ -1,19 +1,17 @@
 ## todo
 
-- all assignments on Google Classroom, plus rubrics
-- signup sheets for hosting and for presenting readings
-- first class prep (see below)
+- confirm all visitors and tell the department (Ellie (havent emailed), Elisa, Nandita)
 - know how to manage break-out groups for discussion
-- mechanics of hosting visitors
-- questionnaire, prep email for day before if they need to bring something
-/
-- read and prep crib sheets for presenters
+- first class prep (see below)
 
 
 ## todo weekly
 - grade introductions, hosting, essays
-- post texts two weeks in advance
-
+- reach out to visitors
+- post:
+Once things are working and I like the assignment, can build it out:
+- duplicate weekly essay assignment; scheduled to appear at 6:30 that week, due the thursday after
+- readings due at 3:30, appear at 6:30 the week before
 
 ## class format
 - students all read a text and leave (private, apparently) comments on the assignment
@@ -29,19 +27,23 @@ this is going to be an hour long, that's it. right? 3:30 - 4:30
 
 ## Intro class
 
-discussion of canons
+what this is not, is a lecture
+I will provide guidance
 I havent read all these texts; we'll read this together
+
+how do you engage with discourse as an artist?
+
+discussion of canons
 the inclusion can be challenged
 
 you will do the work
 purpose is to develop a dialogue as a cohort
 
-I'm not going to lecture, we're going to work through this together
+--> situating exercise
 
-I will provide guidance
-
- (signups, introductory exercise)
-
+Syllabus
+Google Classroom
+short classes
 
 ## other ideas
 
