@@ -86,7 +86,7 @@ The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Cl
 ### Week 4 (9/28)
 - Tania Bruguera, "Political Art Statement" (2010)
 - Alan Kaprow, "Legacy of Jackson Pollock" (1958)  
-**5pm Talk: [Gianine Tabja](http://www.gianinetabja.com/portfolio.html) (Perú)**
+**5pm Talk: [Gianine Tabja](http://www.gianinetabja.com/portfolio.html)**
 
 ### Week 5 (10/5)
 - Michael Fried, "Art and Objecthood" (1967)
