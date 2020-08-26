@@ -70,12 +70,10 @@ Please refer to the policy on [Academic Integrity](https://docs.lclark.edu/under
 The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Clackamas, Tumwater, Watalala bands of the Chinook, the Tualatin Kalapuya, and other indigenous nations of the Columbia River, and we are here because of the sacrifices forced upon them. Furthermore, we are at an institution named after white colonizers in a city with a racist history. As artists, we must be aware of and resist the many ways violence is perpetuated toward marginalized people.
 ##
 
-## Readings
-
 ## Schedule
 
 ### Week 1 (8/31)
-- Introductions *prep: have an image or two that represents your work*
+- Introductions
 
 ### Week 2 (9/14)
 - Irit Rogoff, "What is a Theorist" (2004)
@@ -107,7 +105,7 @@ The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Cl
 ### Week 8 (10/26)
 - Hito Steryl, "In Defense of the Poor Image" (2009)
 - Florian Cramer, "What is Post-Digital?" (2015)  
-**time TBD** [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)
+**time TBD [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)**
 
 ### Week 9 (11/2)
 - Coco Fusco, "The Bodies That Were Not Ours" (2002)
@@ -136,12 +134,9 @@ VOTE
 **6:30pm Talk [Nandita Kumar](https://nanditakumar.com)**
 
 
-
-
-
 ### Week 13 (12/7)
 Influence map presentations
 
 
-### Finals Week (?)
+### Finals Week
 - **Final paper due**
