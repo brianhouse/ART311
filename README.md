@@ -30,7 +30,7 @@ Every week there will be assigned texts which are to be read in preparation for 
 Each student will more carefully consider issues raised in discussion through weekly reflections. This will take the form of a short 300–400 word essay. This is a way for you to synthesize what we are learning in class and to situate your own art practice.
 
 ### Visiting Artists
-In addition, we will have seven visiting artists this semester meeting with us to talk about their work. Everyone in the class will have a task hosting one of the visiting artists (an introduction, gift, or thank you). In addition, you are expected to incorporate research and reflection related to each of the visiting artist lectures into our class discussions and your writing.
+In addition, we will have seven visiting artists this semester meeting with us to talk about their work. Everyone in the class will have a task hosting one of the visiting artists (an introduction or a thank you gift). In addition, you are expected to incorporate research and reflection related to each of the visiting artist lectures into our class discussions and your writing.
 
 ### Final Paper
 With the final paper, you will investigate what you want art to be and/or do. It should reflect a clear synthesis of topics covered throughout the semester, properly citing texts read in the course along with additional texts and other research. Clarity, organization, depth, and grasp of course material will be among the evaluating criteria for your final paper. The text should be 2000-2500 words, and a one-page prospectus and short bibliography for your final paper will be due in advance.
@@ -49,7 +49,7 @@ Over the course of the semester, you will create and refine an image (or other r
 
 
 ## COVID-19 Alterations
-In order to maintain consistency throughout the semester, incorporate artist visits via Zoom, and accommodate immunocompromised members of the community, this course will be entirely online for Fall 2020. Online discussion will be one hour followed by artist visits and/or time for written work and individual meetings. The course will be managed through Google Classroom.
+In order to maintain consistency throughout the semester, incorporate artist visits via Zoom, and accommodate immunocompromised members of the community, this course will be entirely online for Fall 2020. Online discussion will be followed by artist visits and/or time for written work and individual meetings. The course will be managed through Google Classroom. Please attend with your video on.
 
 
 ## Policies
