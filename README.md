@@ -109,16 +109,14 @@ The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Cl
 - Florian Cramer, "What is Post-Digital?" (2015)  
 **3:30pm Talk: [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)**
 
-### 10/30 Junior Reviews
+### Junior Reviews (10/30)
 Times and signup sheet TBD
 
 ### Week 9 (11/2)
 - Coco Fusco, "The Bodies That Were Not Ours" (2002)
 - Vito Acconci, "Public Space in a Private Time" (1990)
 
----
-VOTE
----
+### VOTE (11/3)
 
 ### Week 10 (11/9)
 - John Roberts, "Art After Deskilling"
