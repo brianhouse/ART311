@@ -38,6 +38,8 @@ With the final paper, you will investigate what you want art to be and/or do. It
 ### Influence Map
 Over the course of the semester, you will create and refine an image (or other representation) that locates your practice within a web of disciplines, discourses, and artists that influence and inform your work.
 
+### Junior Reviews
+A faculty review of work by declared junior art majors is part of the requirements of the major. It allows faculty to guide students in their thesis work at an earlier point and open up more cross-disciplinary exchange among faculty and students. For Junior Review, students will select five pieces of their “best undergraduate work” for critique by two faculty members who will meet with the student and discuss what will be expected in subsequent reviews. Faculty will assess the work on its technical merits, formal skills, process, and content. A written reflection or statement about these works is required as part of the review.
 
 ### Grading Breakdown
 - 25% General participation
@@ -105,7 +107,10 @@ The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Cl
 ### Week 8 (10/26)
 - Hito Steryl, "In Defense of the Poor Image" (2009)
 - Florian Cramer, "What is Post-Digital?" (2015)  
-**time TBD [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)**
+**3:30pm Talk: [Elisa Giardina-Papa](http://www.elisagiardinapapa.org)**
+
+### 10/30 Junior Reviews
+Times and signup sheet TBD
 
 ### Week 9 (11/2)
 - Coco Fusco, "The Bodies That Were Not Ours" (2002)
