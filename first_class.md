@@ -11,8 +11,8 @@
 --> That's a lot of pressure right off the bat, I know. It doesn't have to be your favorite, it can just be an artist you're thinking of.
 
 
-Alright, so I'll start. I'm Brian
-I primarily work with Sound in my practice, and recently I've been working on building really big microphones to listen to very small sounds.
+Alright, so I'll start. I'm Brian, he/him pronouns
+I primarily work with Sound in my practice, and recently I've been working on building really big microphones to listen to very distant sounds.
 
 One of my favorite artists is Francis Alÿs, particularly his old work, like when he pushed a block of ice through the streets of Mexico City until it melted.
 
