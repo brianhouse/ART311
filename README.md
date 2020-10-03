@@ -97,7 +97,7 @@ The Fields Art Center is built on land belonging to the Multnomah, Kathlamet, Cl
 
 ### Week 6 (10/12)
 - Cornell West, "Black Culture and Postmodernism" (198X)
-- Ariella Azoulay, "The Revolution is the Language" (2011)
+- Ariella Azoulay, "The Revolution is the Language" (2011)  
 **5pm Talk: [Intisar Abioto](https://www.intisarabioto.com)**
 
 ### Week 7 (10/19)
