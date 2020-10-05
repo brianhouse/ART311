@@ -120,8 +120,8 @@ Times and signup sheet TBD
 ### VOTE (11/3)
 
 ### Week 10 (11/9)
-- John Roberts, "Art After Deskilling"
-- MTL Collective, "Land of the Lost"  
+- John Roberts, "Art After Deskilling" (2010)
+- MTL Collective, "Land of the Lost" (2018)
 **5pm Talk: [Anina Major](http://www.aninamajor.com)**
 
 ### Week 11 (11/16)
@@ -134,7 +134,7 @@ Times and signup sheet TBD
 
 
 ### Week 12 (11/30)
-- Benjamin Bratton, "Some Trace Effects of the Post-Anthropocene"  
+- Benjamin Bratton, "Some Trace Effects of the Post-Anthropocene" (2013)
 **6:30pm Talk [Nandita Kumar](https://nanditakumar.com)**
 
 
